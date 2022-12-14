@@ -52,4 +52,8 @@ https://outred.github.io/game
 
 https://vexgames.online/
 
+https://skool.world/
+
+https://skool.gq/
+
 Enjoy!
