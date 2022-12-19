@@ -56,4 +56,14 @@ https://skool.world/
 
 https://skool.gq/
 
+https://www.typeracer.gq/
+
+https://flipgrid.gq/
+
+https://r.pluralsight.gq/
+
+https://r.codewars.ml/
+
+https://www.coursera.cf/
+
 Enjoy!
