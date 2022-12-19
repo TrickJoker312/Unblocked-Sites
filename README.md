@@ -66,4 +66,10 @@ https://r.codewars.ml/
 
 https://www.coursera.cf/
 
+https://whitespider.gq/
+
+https://whitespider.gq/ebutuoy/
+
+https://tw31120071857.github.io/BCHS-Unblocked-Games-V2/Online%20Games.html
+
 Enjoy!
