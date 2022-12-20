@@ -72,4 +72,16 @@ https://whitespider.gq/ebutuoy/
 
 https://tw31120071857.github.io/BCHS-Unblocked-Games-V2/Online%20Games.html
 
+https://wcpss.gq/
+
+https://skool.pages.dev/
+
+https://mathhomework.pages.dev/
+
+https://mathwizard.pages.dev/
+
+https://mathhomework.netlify.app/
+
+https://skool-world.translate.goog/?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en&_x_tr_pto=wapp
+
 Enjoy!
