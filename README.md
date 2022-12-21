@@ -86,4 +86,6 @@ https://skool-world.translate.goog/?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en&_x_tr_
 
 https://oddpvp.github.io/unblockedgames/
 
+trickjoker312.github.io/
+
 Enjoy!
