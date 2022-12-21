@@ -88,4 +88,6 @@ https://oddpvp.github.io/unblockedgames/
 
 https://trickjoker312.github.io/
 
+https://funkymods.github.io/
+
 Enjoy!
