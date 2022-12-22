@@ -96,4 +96,6 @@ https://luckydog7.github.io/funkinmobile/game/index.html
 
 https://gaming99github.github.io/
 
+https://trickjoker312.github.io/unblockedgames/
+
 Enjoy!
