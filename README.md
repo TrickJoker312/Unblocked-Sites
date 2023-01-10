@@ -170,5 +170,9 @@ https://slope.faav.top/
 
 https://shadowgmes.github.io/
 
+https://dominos.buzz/play.html
+
+https://fractions.interstellarmath.ink/play.html
+
 
 Enjoy!
