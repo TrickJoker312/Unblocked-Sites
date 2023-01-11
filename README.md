@@ -178,5 +178,8 @@ https://unblockedswaggygames.netlify.app/
 
 https://www.schooltears.ml/
 
+https://ds-proxy-1.darkspeed.repl.co/
+
+https://proxy.darkspeed.repl.co/
 
 Enjoy!
