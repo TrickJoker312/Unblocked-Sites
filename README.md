@@ -19,7 +19,6 @@ https://cattn.github.io/gba/
 
 https://28klotlucas2.github.io/Mario64webgl/
 
-
 https://emulatoros.github.io/
 
 https://abc6782.github.io/core-html/games.html
@@ -181,5 +180,7 @@ https://www.schooltears.ml/
 https://ds-proxy-1.darkspeed.repl.co/
 
 https://proxy.darkspeed.repl.co/
+
+https://darkspeed.repl.co/games.html
 
 Enjoy!
