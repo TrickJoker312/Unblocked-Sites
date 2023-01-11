@@ -185,4 +185,6 @@ https://darkspeed.repl.co/games.html
 
 https://shadowgmes.github.io/
 
+https://genarcy.vercel.app/Pages/games.html
+
 Enjoy!
