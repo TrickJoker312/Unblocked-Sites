@@ -191,4 +191,10 @@ https://funmath.club/
 
 https://mgg658.github.io/
 
+https://oddgames.uk/
+
+https://oddisbest.dev/
+
+https://funmath.club/
+
 Enjoy!
