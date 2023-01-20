@@ -199,6 +199,6 @@ https://funmath.club/
 
 https://fractions.interstellarmath.ink/play.html
 
-https://potion-of.invisibility.lol/
+https://potion-of.invisibility.lol/play.html
 
 Enjoy!
