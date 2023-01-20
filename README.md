@@ -197,4 +197,8 @@ https://oddisbest.dev/
 
 https://funmath.club/
 
+https://fractions.interstellarmath.ink/play.html
+
+https://potion-of.invisibility.lol/
+
 Enjoy!
