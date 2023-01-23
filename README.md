@@ -205,4 +205,10 @@ https://desmos.me/play.html
 
 https://artclass.site/games.html
 
+https://gh.retronetwork.ml/
+
+https://f9928793-06ce-4c41-ad0a-5558a1cd061a-4606328.cf/
+
+https://gamehub88.gq/
+
 Enjoy!
