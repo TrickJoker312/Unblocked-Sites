@@ -213,4 +213,6 @@ https://gamehub88.gq/
 
 https://smdgames.github.io/
 
+https://www.hotcorn.ga/games/index.html
+
 Enjoy!
