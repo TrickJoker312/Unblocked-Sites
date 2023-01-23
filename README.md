@@ -203,4 +203,6 @@ https://potion-of.invisibility.lol/play.html
 
 https://desmos.me/play.html
 
+https://artclass.site/games.html
+
 Enjoy!
