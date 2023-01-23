@@ -201,4 +201,6 @@ https://fractions.interstellarmath.ink/play.html
 
 https://potion-of.invisibility.lol/play.html
 
+https://desmos.me/play.html
+
 Enjoy!
