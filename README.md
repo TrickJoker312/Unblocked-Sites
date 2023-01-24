@@ -215,4 +215,15 @@ https://smdgames.github.io/
 
 https://www.hotcorn.ga/games/index.html
 
+https://uk1.noblo.cc/
+
+https://uk2.noblo.cc/
+
+https://us1.noblo.cc/
+
+https://us2.noblo.cc/
+
+https://g.noblo.cc/
+
+
 Enjoy!
