@@ -233,5 +233,7 @@ https://unblockedhaven.games/games?unlock
 
 https://mgalternative.github.io/
 
+https://mathgames67.github.io/
+
 
 Enjoy!
