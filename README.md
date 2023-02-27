@@ -267,5 +267,9 @@ https://encouraging-inexpensive-polo.glitch.me/
 
 https://veil-band-pixie.glitch.me/
 
+https://www.jordansmathwork.ml/gs/
+
+https://geometryspot.com/activities/
+
 
 Enjoy!
