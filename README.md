@@ -279,4 +279,8 @@ https://masonsunblockedgames.github.io/MasonsUnblockedGames/
 
 https://vancouver-games.github.io/
 
+https://hmafia.org
+
+https://inflopnito.com
+
 Enjoy!
