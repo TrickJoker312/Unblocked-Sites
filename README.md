@@ -279,4 +279,12 @@ https://masonsunblockedgames.github.io/MasonsUnblockedGames/
 
 https://vancouver-games.github.io/
 
+https://whizgames.github.io/
+
+https://dingusorg.github.io/yeet/
+
+https://project-scythe.vercel.app/
+
+
+
 Enjoy!
