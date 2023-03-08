@@ -311,6 +311,19 @@ https://blue-seas.glitch.me/
 
 https://outred.org/
 
+https://login.discoveryeducation.cf/
+
+https://app.discoveryeducation.cf/
+
+https://help.discoveryeducation.cf/
+
+https://dylanprivate.glitch.me/
+
+https://ripple-persistent-lifter.glitch.me/
+
+https://synik.cf/
+
+
 
 
 Enjoy!
