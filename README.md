@@ -375,6 +375,22 @@ https://75kh0.github.io/
 
 https://prestonwitzel.github.io/
 
+https://mathgames67.github.io/
+
+https://mgalternative.github.io/
+
+https://mgunblocked.github.io/
+
+https://rx1ncreations.github.io/
+
+https://lps7x.csb.app/
+
+https://skoolgq.github.io/
+
+https://unblockedhaven.games/?unlock
+
+
+
 
 
 
