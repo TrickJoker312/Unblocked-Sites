@@ -417,7 +417,11 @@ https://interstellar-77q7.onrender.com/play.html
 
 https://login.algebraxyz.online/play.html
 
+https://www.rateavon.je/error.php
 
+https://hhsgames.netlify.app/
+
+https://login.algebraxyz.com/play.html
 
 
 
