@@ -525,6 +525,9 @@ https://i-eat-big-poopy.onrender.com/play.html
 
 https://unblockedgames66.github.io/
 
+https://john-cena.onrender.com/play
+
+https://sus-amogus.onrender.com/play
 
 
 
