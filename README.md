@@ -543,11 +543,11 @@ https://nabilv5.netlify.app/pages/games.html
 
 https://nabilmirror2.netlify.app/pages/games.html
 
-https://tristan-is-cool.onrender.com/play
-
 https://stephen-is-cool.onrender.com/games
 
 https://jermaine-is-cool.onrender.com/
+
+https://tristan-thorne-is-cool.onrender.com/play
 
 
 
