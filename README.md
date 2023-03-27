@@ -573,6 +573,21 @@ https://metal.tree-board.net/
 
 https://geoquiz.gq/
 
+https://login.prospectpointbooks.com/
+
+https://join.gettysburgmath.org/
+
+https://irepel.cf/
+
+https://play.irepel.com/
+
+https://weblfg.vercel.app/games
+
+https://ubg100.vercel.app/games
+
+https://ubg.vercel.app/games
+
+https://supermath84.vercel.app/games
 
 
 
