@@ -569,6 +569,10 @@ https://bubbo.strangled.net/play
 
 https://techgai.com/
 
+https://metal.tree-board.net/
+
+https://geoquiz.gq/
+
 
 
 
