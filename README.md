@@ -803,6 +803,12 @@ https://japan.computersforpeace.net/play.html
 
 https://interstellarontop.fr.to/play.html
 
+https://learn.qreg.net/
+
+https://shiny.star.is/
+
+
+
 
 
 
