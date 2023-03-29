@@ -793,6 +793,15 @@ https://screw-algebra.onrender.com/play.html
 
 https://the-site-thingy.onrender.com/play.html
 
+https://ocean.ecosys.eu/play.html
+
+https://mathematics.info.gf/play.html
+
+https://computers.bot.nu/play.html
+
+https://japan.computersforpeace.net/play.html
+
+https://interstellarontop.fr.to/play.html
 
 
 
