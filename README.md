@@ -817,6 +817,17 @@ https://yummyfood-tk.vercel.app/play.html
 
 https://twagner-25-onrender.onrender.com/play.html
 
+https://mathcaculator.site/
+
+https://glatic.games/
+
+https://the-glatics.github.io/glaticgames/
+
+https://flushed.cyou/
+
+
+
+
 
 
 
