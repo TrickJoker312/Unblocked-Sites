@@ -5,6 +5,8 @@ https://unblocker.whitespider.gq/
 
 https://unlock.wmeluna.com/
 
+https://sz-games.github.io
+
 https://593d4d43-3073-45d0-86e2-0443d15adf21.id.repl.co/games/mario64/index.html
 
 https://ubg100.bitbucket.io/games.html
