@@ -11,6 +11,8 @@ https://593d4d43-3073-45d0-86e2-0443d15adf21.id.repl.co/games/mario64/index.html
 
 https://ubg100.bitbucket.io/games.html
 
+https://suite.saltyspamz.xyz/
+
 https://mathadventure1.github.io/sm64/sm64/index.html
 
 https://picklekid31.github.io/GBA-unblocked-games/
