@@ -1,0 +1,1 @@
+On this repository, you can contribute anyway you want! That includes: creating a fork, creating an issue asking me to put a site in, or creating a pull request! I appreciate every contribution to my repository, as it's growing!
