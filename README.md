@@ -2,6 +2,13 @@ Be sure to join the official Unblocked Sites Discord server! https://discord.gg/
 # Unblocked Sites
 Hey, everyone! Here are some of the many unblocked game sites I know:
 
+
+- https://algebracalculator.xyz/
+- https://scienceiscool.info/
+- https://dreamboxmath.info/
+- https://testingguides.info/
+- https://testguides.info/
+- https://eddmentum.info/
 - https://unblocker.whitespider.gq/
 - https://unlock.wmeluna.com/
 - https://sz-games.github.io
