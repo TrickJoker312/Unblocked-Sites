@@ -409,6 +409,9 @@ LAST UPDATED: 10/25/2023
 - https://interstellarontop.fr.to/play.html
 - https://learn.qreg.net/
 - https://shiny.star.is/
+- https://platformerdotio.co/
+- https://cybriagames.com/
+- 
 - https://algebra.ultsrv.com/
 - https://wjpzp6-8080.csb.app/play
 - https://techno-never.dies.minecraftpotato.com/
