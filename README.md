@@ -467,5 +467,9 @@ Hey, everyone! Here are some of the many unblocked game sites I know:
 - https://photography.ryanandjen.org/
 - https://chemistry.prs7.org/
 - https://cdn.tomahawkchurch.org/
+- https://chemistry.prs7.org/
+- https://i-hate-school-lol.hop.sh/
+- https://coal-uranium-plutonium.vercel.app/
+- https://tasty-rock.hop.sh/
 
 Enjoy!
