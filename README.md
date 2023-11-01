@@ -476,5 +476,7 @@ LAST UPDATED: 10/25/2023
 - https://i-hate-school-lol.hop.sh/
 - https://coal-uranium-plutonium.vercel.app/
 - https://tasty-rock.hop.sh/
+- https://69.eightgrade.com/
+- https://someone.fairuse.org/
 
 Enjoy!
