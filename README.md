@@ -1,3 +1,8 @@
+PLEASE READ
+If you have any links, be sure to put them in issues!
+Also, if you own a game website, be sure to put it in issues as well, if you'd like an ad for it on YT!
+
+
 Be sure to join the official Unblocked Sites Discord server! https://discord.gg/5BcSSKGT 
 
 # Unblocked Sites
