@@ -7,7 +7,7 @@ Be sure to join the official Unblocked Sites Discord server! https://discord.gg/
 
 # Unblocked Sites
 Hey, everyone! Here are some of the many unblocked game sites I know:
-LAST UPDATED: 10/25/2023
+LAST UPDATED: 11/13/2023
 
 - https://unblocker.whitespider.gq/
 - https://unlock.wmeluna.com/
@@ -483,5 +483,6 @@ LAST UPDATED: 10/25/2023
 - https://tasty-rock.hop.sh/
 - https://69.eightgrade.com/
 - https://someone.fairuse.org/
-
+-  https://sword.msg.boats/
+ 
 Enjoy!
