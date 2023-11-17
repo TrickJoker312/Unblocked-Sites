@@ -484,5 +484,16 @@ LAST UPDATED: 11/13/2023
 - https://69.eightgrade.com/
 - https://someone.fairuse.org/
 -  https://sword.msg.boats/
- 
+-  https://selenite.cc/
+-  https://selenite.skysthelimit.dev/
+-  https://all-about-science.onrender.com/
+-  https://robotics-docs.onrender.com/
+-  https://contact.deleesportsmedicine.com/
+-  https://learn-at.undo.it/
+-  https://fediverse.faefox.org/
+-  https://projects.blueshadows.cl/
+-  https://contact.zverovich.net/
+
+
+
 Enjoy!
