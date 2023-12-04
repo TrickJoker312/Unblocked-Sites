@@ -3,8 +3,9 @@ Be sure to join the official Unblocked Sites Discord server! https://discord.gg/
 
 # Unblocked Sites
 Hey, everyone! Here are some of the many unblocked game sites I know:
-LAST UPDATED: 11/20/2023
+LAST UPDATED: 12/2/2023
 
+- http://ixl.plus
 - https://unblocker.whitespider.gq/
 - https://unlock.wmeluna.com/
 - https://sz-games.github.io
