@@ -491,6 +491,11 @@ LAST UPDATED: 11/20/2023
 -  https://contact.zverovich.net/
 -  https://nc.is-a.super-cool.dev/
 -  https://mathstudy.one/msgweb/
+-  https://op1um.pages.dev/
+-  https://opium-games.com/
+-  https://opium.cybriatech.dev/
+-  https://opium-games.onrender.com/
+-  https://bewildered-tweed-jacket-pike.cyclic.app/
 -  
 
 
