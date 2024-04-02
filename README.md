@@ -1,9 +1,9 @@
-Be sure to join the official Unblocked Sites Discord server! https://discord.gg/ePZRvP4h
+Be sure to join the official Unblocked Sites Discord server! https://discord.gg/rcpC9VfE
 
 
 # Unblocked Sites
 Hey, everyone! Here are some of the many unblocked game sites I know:
-LAST UPDATED: 11/20/2023
+LAST UPDATED: 4/2/2024
 
 - https://unblocker.whitespider.gq/
 - https://unlock.wmeluna.com/
