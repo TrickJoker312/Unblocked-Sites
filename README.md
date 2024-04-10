@@ -23,6 +23,8 @@ LAST UPDATED: 4/2/2024
 - https://jetyehsunblocked.codehs.me/
 - https://593d4d43-3073-45d0-86e2-0443d15adf21.id.repl.co/
 - https://superteamxx.github.io/Subway-Surfers/
+- https://astro-v2-puce.vercel.app
+- https://astrov2.netlify.app
 - https://ytunblock.weebly.com/
 - https://gamerateofficial.weebly.com/
 - https://ytunblockerv10.weebly.com/
