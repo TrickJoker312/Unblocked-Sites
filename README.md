@@ -4,7 +4,7 @@ Be sure to join the official Unblocked Sites Discord server! https://discord.gg/
 # Unblocked Sites
 Hey, everyone! Here are some of the many unblocked game sites I know:
 LAST UPDATED: 4/2/2024
-
+- https://nooby-games.github.io/Nooby/
 - https://unblocker.whitespider.gq/
 - https://unlock.wmeluna.com/
 - https://sz-games.github.io
