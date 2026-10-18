@@ -3,7 +3,12 @@ Be sure to join the official Unblocked Sites Discord server! https://discord.gg/
 
 # Unblocked Sites
 Hey, everyone! Here are some of the many unblocked game sites I know:
-LAST UPDATED: 4/2/2024
+LAST UPDATED: 10/18/2026
+
+- https://blooket1.com/
+- https://blooket1.pages.dev/
+- https://educational.blooket1.com/
+- https://blooket1.com/drive.google.com/
 
 - https://unblocker.whitespider.gq/
 - https://unlock.wmeluna.com/
